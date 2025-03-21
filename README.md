@@ -8,11 +8,11 @@
 > Vivo en Pilar.
 
 ## Me gusta...
-> Tocar el piano
+> Tocar el piano.
 > 
-> Jugar al padel
+> Jugar al padel.
 > 
-> Aprender a programar
+> Aprender a programar.
 > 
 > En vacaciones ir a esquiar.
 
